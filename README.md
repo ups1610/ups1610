@@ -1,6 +1,6 @@
 ### Hi Folks, I'm Upendra Pratap Singh 👋
 
-## I'm a Student,programmer, Competitive coder, and Developer!!
+## I'm a Student, Competitive coder, & Developer!!
 
 
 <img align="right" alt="GIF" src="https://media.giphy.com/media/836HiJc7pgzy8iNXCn/giphy.gif" />
