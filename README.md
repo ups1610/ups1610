@@ -7,7 +7,8 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2021 Goals: Contribute more to Open Source projects
+- 👯 I,m open to work
+- 🥅 Goals: Contribute more to the projects and developer community
 - 📫 How to reach me: pratapsinghupendra96@.com
 - ⚡ Fun fact: I love to do dancing
 
