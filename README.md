@@ -10,6 +10,7 @@
 - 👯 I,m open to work
 - 🥅 Goals: Contribute more to the projects and developer community
 - 📫 How to reach me: pratapsinghupendra96@.com
+- https://www.linkedin.com/in/upendrapratapsingh-1610/
 - ⚡ Fun fact: I love to do dancing
 
 
