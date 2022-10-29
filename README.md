@@ -1,4 +1,4 @@
-### Hi Folks, I'm Upendra Pratap Singh 👋
+### Hey Folks, I'm Upendra Pratap Singh 👋
 
 ## I'm a Student, Competitive coder, & Developer!!
 
