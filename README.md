@@ -11,7 +11,7 @@
 - 🥅 Goals: Contribute more to the projects and developer community
 - 📫 How to reach me: pratapsinghupendra96@.com
 - https://www.linkedin.com/in/upendrapratapsingh-1610/
-- ⚡ Fun fact: I love to do dancing
+- ⚡ Fun Fact: I love to do dancing
 
 
 ### Connect with me:
